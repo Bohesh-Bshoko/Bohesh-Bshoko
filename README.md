@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bohesh-Bshoko (roy hashamen)
+- 👋 Hi, I’m @Bohesh-Bshoko (Roy Hashamen)
 - 👀 I’m interested in boys and food
 - 🌱 I’m currently learning how to suck dick
 - 💞️ I’m looking to collaborate on threesome
